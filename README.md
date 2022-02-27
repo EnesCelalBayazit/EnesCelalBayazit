@@ -1,4 +1,5 @@
 - 👋 E-mail: enesbayazit59@gmail.com
+- 👋 Telegram: Halo0219
 - 👋 Skype: live:.cid.500ff09a358b3b95
 
 <!---
